@@ -1,0 +1,3 @@
+## 5. Conclusion
+
+It is disappointing that in the third century following the signing of the Declaration of Independence, we find ourselves having to fight against those same things from which our forefathers declared their independence. Those principles of human freedom and dignity we support in this platform are similar to those our government was originally created to protect. Remembering what in fact constitutes a crime leads us to the inevitable and sad conclusion that presently government is the greatest criminal of all. The Libertarian Party’s goal is to gain recognition for that freedom and dignity to which each individual has a right.
